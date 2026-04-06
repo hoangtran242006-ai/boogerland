@@ -1,2 +1,0 @@
-# boogerland
-just for fun
